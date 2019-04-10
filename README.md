@@ -1,0 +1,1 @@
+# oam_yokoze20190402terasakatanada01
